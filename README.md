@@ -30,3 +30,5 @@ Vorbereitung: Ab Woche 8 Stofftiere in den Behälter stellen, Honig als Belohnun
 
 Dauer: 10 Monate bis zur Originalgröße (3 Meter Höhe, 5 Meter Länge).
 Vorbereitung: Ab Monat 8 Futter auf 3 kg Fleisch täglich erhöhen. Rollenfähigkeit durch größere Neigungen testen. Behälter öffnen, wenn Leuchten stabil ist, und Gnasher in ’ne kontrollierte Wildnis entlassen. Erklärung: Die finale Phase härtet ihn ab. Er rollt, leuchtet nachts blau und bleibt ’n netter, aber mächtiger Biber."
+
+Diese scheiß Arschlöcher rauchen joint, ich will auch joint rauchen ist nicht dass man deren gras will. 10es Gebot hält man damit sogar bei Sucht unter Leuten.
